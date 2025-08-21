@@ -1,8 +1,8 @@
-# 🌟 Nathalia Simmer  
+# 🌟 Hi, I'm Nathalia Simmer  
 
-**Senior Full-stack & Mobile Engineer | 11+ years of experience | Remote-first**  
+**Senior Full-stack & Mobile Engineer | 11+ years of experience | Remote-first 🌍**  
 
-🔗 [LinkedIn](https://www.linkedin.com/in/nathalia-simmer)
+🔗 [LinkedIn](https://www.linkedin.com/in/nathalia-simmer) • ✉️ [Email](mailto:nathaliasimmer@gmail.com)
 
 ---
 
